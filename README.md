@@ -2,7 +2,7 @@
 - 👀 I’m interested in 干饭干饭干饭！！！！
 - 🌱 I’m currently learning 干饭干饭干饭！！!!!!！！
 - 💞️ I’m not looking to collaborate on ...
-- 📫 How to reach me ...Call me 110.
+- 📫 How to reach me ...Call me 520.
 
 <!---
 xquanz/xquanz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
